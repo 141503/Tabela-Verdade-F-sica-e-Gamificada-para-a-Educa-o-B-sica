@@ -1,0 +1,1 @@
+# Tabela-Verdade-F-sica-e-Gamificada-para-a-Educa-o-B-sica
